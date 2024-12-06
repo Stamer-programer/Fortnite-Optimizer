@@ -1,3 +1,3 @@
 # Fortnite-Optimizer
 
-just optimize pc for fortnite
+just optimize your pc for fortnite
